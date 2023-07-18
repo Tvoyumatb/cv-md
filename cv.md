@@ -1,5 +1,3 @@
 # Kamron Abdulsattorov
 
-## Ученик в IT Labs front-end
-
-- - 
+## Ученик в It-Labs front-end
