@@ -8,3 +8,6 @@
 *Lorem ipsum dolor sit amet, consectetur adipisicing elit. Consequuntur eius in labore quidem, sequi suscipit!*
 
 __Lorem ipsum dolor sit amet, consectetur adipisicing elit. Consequuntur eius in labore quidem, sequi suscipit!__
+
+>лучше опоздать и посрать,чем придти и обосраться
+
