@@ -10,6 +10,6 @@
 
 1. Телефон - (90) 886-02-12
 
-2. Соц-сети: [link](https://www.instagram.com/kamron_sw)
+2. Соц-сети: [instagram](https://www.instagram.com/kamron_sw)
 
 3. Telegram: [тег2][https://www.t.me/tvoyumatb3.]
