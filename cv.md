@@ -11,9 +11,6 @@
  
 1. Телефон - +998(90) 886-02-12
  
-2. Соц-сети: [Instagram](https://www.instagram.com/kamron_sw) 
- 
- [vk](http://vk.com/kamron_sw)
- 
+2. Соц-сети: [Instagram](https://www.instagram.com/kamron_sw) ,[vk](http://vk.com/kamron_sw)
  
 3. [Telegram](https://www.t.me/tvoyumatb3)
