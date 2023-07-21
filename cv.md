@@ -1,6 +1,6 @@
 # Камрон Абдулсатторов
 
-## Ученик в It-Labs front-end
+## Ученик в [It-Labs](https://instagram.com/itlabs.uz) front-end
 
 ### Кратко о себе:
 
